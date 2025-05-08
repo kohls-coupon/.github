@@ -8,7 +8,7 @@ you can enjoy reduces prices and special offers on your favorate products.
 
 Here are some of the current kohls coupons avaliable:
 
-|   Coupon Description  and current offers Kohl's coupon   |   Discount     |     Expiry Date |
+|   Coupon Description  and current offers Kohl's coupon   |   Discount  percentage  |     Expiry Date live status |
 | ----------------------- | --------------- | --------------- | 
 | Extra 15% off Sitewide  | 15% off discount | May  11 2025 |
 | 20% Off on your Kohls order | 20% off discount | June  26 2025 |
