@@ -44,7 +44,21 @@ For additional deals discounts and savings, consider downloading the kohl's mobi
 
 ## Frequently Asked questions
 
-Can i use multile coupons on a single order ?
-A: Yes, you can apply up to 4 promoo codes
+Q: Can i use multile coupons on a single order ?
+A: Yes, you can apply up to 4 promocodes per order when shopping on a desktop. This includes one sidewider percentage off coupon and multiple department specific coupons.
+
+Q: How do i earn kohl's cash?
+A: during promotional periods, you'll earn $10 in kohl's cash for every $50 spent. This can be redeemed on future purchases.
+
+Q: Do Kohl's coupons expired ?
+A: Yes, each coupon has expiration date. Be sure to check validity period before using.
+
+Q: Can i use kohls cash and coupons together?
+A: Absoletely! Kohls allows you to stack kohls cash with other coupons for maximum savings.
+
+-----
+
+By staying informed about the latest kohl's coupons and utilizing the rewads programs, you can make the most of your shopping experiance and enjoy significat savings on a wide range of products.
+ 
 
 
