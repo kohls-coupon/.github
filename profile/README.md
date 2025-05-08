@@ -14,6 +14,6 @@ Here are some of the current kohls coupons avaliable:
 | 20% Off on your Kohls order | 20% off discount | June  26 2025 |
 | 30% off with kohls card | 30% off |  Limited time discount |
 | $10 Off $ 50 Jewelry & watches | $ 10 Off  | May 11, 2025 |
-| Up to 70% off Clearance Items | up to 70% off | Dec 31, 2025 |
+| Up to 70% off Clearance Items, Kohl's coupons online, check now live online | up to 70% off | Dec 31, 2025 |
 
 
