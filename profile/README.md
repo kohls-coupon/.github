@@ -3,6 +3,7 @@
 Kohl's regularly provides a range of coupons and promo codes to help customers save on their purchases. These discounts can be 
 applied various product categories including apparel, electronics and home essentials and beauty items. By utilizing these coupons
 you can enjoy reduces prices and special offers on your favorate products.
+<h1><a href="https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F05%2Ftop-kohls-coupons-promo-codes-for-2025.html&sa=D&sntz=1&usg=AOvVaw2sF_6NsjHWPid6QTu1FmbE">👉 Click here to GET KOHLS Coupon</a></h1>
 
 ## top kohls coupons for may 2025 
 
